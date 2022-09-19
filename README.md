@@ -31,7 +31,7 @@
 
 ***interests***
 
-please talk to me if you like them too I don't have any friends (´；ω；`)
+please talk to me if you like them too (´；ω；`)
 
 *killer7*
 
