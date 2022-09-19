@@ -1,24 +1,37 @@
-▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
+![tumblr_1998c885688f8545044d6f6ef5966617_e948ee9a_500](https://user-images.githubusercontent.com/93416695/190959690-555cf88c-5e2a-42eb-8f94-f2aa31a334ce.gif)
 
-hikki
+![6ba3a85951c32ab4fa560054d359f2db](https://user-images.githubusercontent.com/93416695/190961519-5123c0e6-ea2f-4080-882e-1eae7b5d9680.png)
+
+![latest](https://user-images.githubusercontent.com/93416695/190963501-596c5464-f630-4b17-848b-683fc2069c4f.png)
+
+![imageedit_1_9516586111](https://user-images.githubusercontent.com/93416695/190962668-f6bb0a69-2c81-42e6-b4fe-abe9480f0aa8.png)
+![imageedit_1_8911949296](https://user-images.githubusercontent.com/93416695/190963030-41805d36-0984-448a-8a25-6cf9ff3bd6ec.png)
+
+
+⚰️ - hikki
  
-she/her
+⚰️ - she/her
 
-18
+⚰️ - 18
 
-some ghost that lives below the docks
 
-▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
+![ezgif-1-a1d49935a0](https://user-images.githubusercontent.com/93416695/190961432-05198838-ccc1-4e5f-8732-84671edaf87a.gif)
 
-i have severe social anxiety so I may not respond if you stand in front of me and stare, whispers are okay though
 
-sometimes I sleep while playing, especially during daylight hours
+† - i'm horribly shy and have severe social anxiety so I may not respond if you stand in front of me and stare, whispers are okay though
 
-▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
+† - mostly active around 12 to 5 AM, if I'm online during the mornings or afternoon I'm probably asleep.
+
+
+† - [kinlist ༼;´༎ຶ ༎ຶ༽](https://liberationmaiden.carrd.co/)
+
+
+![imageedit_1_4389128286](https://user-images.githubusercontent.com/93416695/190962283-789cbd25-0803-4d8a-a08b-e9d81dd0a4c4.png)
+![imageedit_1_3665419733](https://user-images.githubusercontent.com/93416695/190962437-42bb5fcc-3a9e-403f-a936-693e6e418958.png)
 
 ***interests***
 
-please talk to me if you like them too I'm so lonely.
+please talk to me if you like them too I don't have any friends (´；ω；`)
 
 *killer7*
 
@@ -52,7 +65,14 @@ please talk to me if you like them too I'm so lonely.
 
 *8eyes*
 
-▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
+
+![imageedit_1_5794059897](https://user-images.githubusercontent.com/93416695/190963229-ad3a2099-6b4d-45b3-98b9-e686d5aea155.png)
+![latest (1)](https://user-images.githubusercontent.com/93416695/190964045-1cb66d6a-9083-4c8f-8fa2-06150923902d.png)
+
+![latest (2)](https://user-images.githubusercontent.com/93416695/190964031-efb31041-5e00-45f0-b9a6-9e5fd19801f2.png)
+
+
+![tumblr_1998c885688f8545044d6f6ef5966617_e948ee9a_500](https://user-images.githubusercontent.com/93416695/190959690-555cf88c-5e2a-42eb-8f94-f2aa31a334ce.gif)
 
 <!---
 000nanashi/000nanashi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
