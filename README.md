@@ -67,6 +67,8 @@ please talk to me if you like them too I don't have any friends (´；ω；`)
 
 *8eyes*
 
+![170](https://user-images.githubusercontent.com/93416695/190969875-cf4f0eb7-7105-445f-a3b1-4e35c9946ed7.png)
+
 
 ![imageedit_1_5794059897](https://user-images.githubusercontent.com/93416695/190963229-ad3a2099-6b4d-45b3-98b9-e686d5aea155.png)
 ![latest (1)](https://user-images.githubusercontent.com/93416695/190964045-1cb66d6a-9083-4c8f-8fa2-06150923902d.png)
