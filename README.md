@@ -45,6 +45,8 @@ please talk to me if you like them too I don't have any friends (´；ω；`)
 
 *touhou*
 
+*gorillaz*
+
 *world of horror*
 
 *creepypastas*
@@ -73,6 +75,8 @@ please talk to me if you like them too I don't have any friends (´；ω；`)
 
 
 ![tumblr_1998c885688f8545044d6f6ef5966617_e948ee9a_500](https://user-images.githubusercontent.com/93416695/190959690-555cf88c-5e2a-42eb-8f94-f2aa31a334ce.gif)
+
+[click here to die](https://www.youtube.com/watch?v=iHLMnP7bpnk)
 
 <!---
 000nanashi/000nanashi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
