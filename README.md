@@ -8,11 +8,11 @@
 ![imageedit_1_8911949296](https://user-images.githubusercontent.com/93416695/190963030-41805d36-0984-448a-8a25-6cf9ff3bd6ec.png)
 
 
-⚰️ - hikki
+† - hikki
  
-⚰️ - she/her
+† - she/her
 
-⚰️ - 18
+† - 18
 
 
 ![ezgif-1-a1d49935a0](https://user-images.githubusercontent.com/93416695/190961432-05198838-ccc1-4e5f-8732-84671edaf87a.gif)
