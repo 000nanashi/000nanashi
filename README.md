@@ -17,8 +17,9 @@
 
 ![ezgif-1-a1d49935a0](https://user-images.githubusercontent.com/93416695/190961432-05198838-ccc1-4e5f-8732-84671edaf87a.gif)
 
+† - not great with words so there's no big introduction to me here, sorry (￣ ￣|||)
 
-† - i'm horribly shy and have severe social anxiety so I may not respond if you stand in front of me and stare, whispers are okay though
+† - i'm horribly shy and have severe social anxiety so I may not respond sometimes, please don't take it personally
 
 † - mostly active around 12 to 5 AM, if I'm online during the mornings or afternoon I'm probably asleep.
 
@@ -31,7 +32,7 @@
 
 ***interests***
 
-please interact if you like them too (´；ω；`)
+(´；ω；`)
 
 *killer7*
 
