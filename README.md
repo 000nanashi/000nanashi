@@ -9,15 +9,19 @@
 
 
 † - hikki
- 
-† - she/her
 
 † - 18
+
+† - she/her
+
+† - first nations/cree
+ 
+
 
 
 ![ezgif-1-a1d49935a0](https://user-images.githubusercontent.com/93416695/190961432-05198838-ccc1-4e5f-8732-84671edaf87a.gif)
 
-† - not great with words so there's no big introduction to me here sorry (￣ ￣|||)
+† - really not great with words (￣ ￣|||)
 
 † - i'm horribly shy and have severe social anxiety so I may not respond sometimes, please don't take it personally
 
