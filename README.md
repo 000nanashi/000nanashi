@@ -31,7 +31,7 @@
 
 ***interests***
 
-please talk to me if you like them too (´；ω；`)
+please interact if you like them too (´；ω；`)
 
 *killer7*
 
