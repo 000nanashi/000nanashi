@@ -14,7 +14,7 @@
 
 † - she/her
 
-† - first nations/cree
+
  
 
 
