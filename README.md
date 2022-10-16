@@ -37,7 +37,7 @@
 ***interests***
 
 
-*killer7*
+*killer7/grasshopper manufacture's games in general ^.^*
 
 *madomagi/magireco*
 
@@ -61,7 +61,7 @@
 
 *SCP*
 
-*rpg maker horror games*
+*rpg maker horror*
 
 *the sims 2*
 
