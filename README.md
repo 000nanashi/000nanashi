@@ -25,7 +25,7 @@
 
 † - i'm horribly shy and have severe social anxiety so I may not respond sometimes, please don't take it personally
 
-† - mostly active around 12 to 5 AM, if I'm online during the mornings or afternoon I'm probably asleep.
+† - mostly active around 12 to 5 AM, if I'm online during the mornings or afternoon I'm probably asleep
 
 
 † - [kinlist ༼;´༎ຶ ༎ຶ༽](https://liberationmaiden.carrd.co/)
@@ -79,7 +79,7 @@
 
 ![latest (2)](https://user-images.githubusercontent.com/93416695/190964031-efb31041-5e00-45f0-b9a6-9e5fd19801f2.png)
 
-***other games that I like that are cool <3***
+***other games that I like and are cool, go check them out <3***
 
 *who's lila*
 
