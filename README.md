@@ -33,7 +33,7 @@
 ![imageedit_1_4389128286](https://user-images.githubusercontent.com/93416695/190962283-789cbd25-0803-4d8a-a08b-e9d81dd0a4c4.png)
 ![imageedit_1_3665419733](https://user-images.githubusercontent.com/93416695/190962437-42bb5fcc-3a9e-403f-a936-693e6e418958.png)
 
-***interests*** (´ ∀ ` )
+***interests***
 
 
 *killer7/grasshopper manufacture's games in general*
@@ -70,7 +70,6 @@
 
 *8eyes*
 
-*for streamers and youtubers, i mostly watch vinesauce, jabroni mike, and manlybadasshero*
 
 
 ![imageedit_1_5794059897](https://user-images.githubusercontent.com/93416695/190963229-ad3a2099-6b4d-45b3-98b9-e686d5aea155.png)
@@ -78,7 +77,7 @@
 
 ![latest (2)](https://user-images.githubusercontent.com/93416695/190964031-efb31041-5e00-45f0-b9a6-9e5fd19801f2.png)
 
-***other cool games that I like*** (´• ω •`)
+***other cool games that I like***
 
 *who's lila*
 
