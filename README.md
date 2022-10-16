@@ -72,7 +72,7 @@
 
 *8eyes*
 
-*for streamers and youtubers, i mostly watch vinesauce, jabroni mike, and manlybadasshero ^-^*
+*for streamers and youtubers, i mostly watch vinesauce, jabroni mike, and manlybadasshero*
 
 
 ![imageedit_1_5794059897](https://user-images.githubusercontent.com/93416695/190963229-ad3a2099-6b4d-45b3-98b9-e686d5aea155.png)
