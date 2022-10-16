@@ -14,19 +14,20 @@
 
 † - she/her
 
-
+† - mixed indigenous/cree
  
-
+ 
 
 
 ![ezgif-1-a1d49935a0](https://user-images.githubusercontent.com/93416695/190961432-05198838-ccc1-4e5f-8732-84671edaf87a.gif)
 
-† - really not great with words (￣ ￣|||)
+† - undead nervous wreck (￣ ￣|||)
 
-† - i'm horribly shy and have severe social anxiety so I may not respond sometimes, please don't take it personally
+† - i'm awfully shy, frequently sleep while playing, and have severe social anxiety so I might not respond sometimes. whispers are prefered but not mandatory!
 
-† - mostly active around midnight to 5 AM CST, if I'm online during the mornings or afternoon I'm probably asleep
+† - my english skills aren't perfect so please don't mind if my typing is a little awkward
 
+† - mostly active around midnight to 5 AM CST. if I'm online during the mornings or afternoon I'm probably asleep
 
 † - [kinlist ༼;´༎ຶ ༎ຶ༽](https://liberationmaiden.carrd.co/)
 
@@ -37,7 +38,7 @@
 ***interests***
 
 
-*killer7/grasshopper manufacture's games in general ^.^*
+*killer7/grasshopper manufacture's games in general*
 
 *madomagi/magireco*
 
@@ -71,7 +72,7 @@
 
 *8eyes*
 
-
+*for streamers and youtubers, i mostly watch vinesauce, jabroni mike, and manlybadasshero ^-^*
 
 
 ![imageedit_1_5794059897](https://user-images.githubusercontent.com/93416695/190963229-ad3a2099-6b4d-45b3-98b9-e686d5aea155.png)
@@ -79,7 +80,7 @@
 
 ![latest (2)](https://user-images.githubusercontent.com/93416695/190964031-efb31041-5e00-45f0-b9a6-9e5fd19801f2.png)
 
-***other cool games that I like <3***
+***other cool games that I like***
 
 *who's lila*
 
@@ -93,7 +94,7 @@
 
 ![tumblr_1998c885688f8545044d6f6ef5966617_e948ee9a_500](https://user-images.githubusercontent.com/93416695/190959690-555cf88c-5e2a-42eb-8f94-f2aa31a334ce.gif)
 
-[click here to die](https://www.youtube.com/watch?v=iHLMnP7bpnk)
+[:)](https://www.youtube.com/watch?v=iHLMnP7bpnk)
 
 <!---
 000nanashi/000nanashi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
