@@ -8,7 +8,7 @@
 ![imageedit_1_8911949296](https://user-images.githubusercontent.com/93416695/190963030-41805d36-0984-448a-8a25-6cf9ff3bd6ec.png)
 
 
-† - hikki (─‿‿─)♡
+† - hikki
 
 † - 18
 
@@ -35,7 +35,7 @@
 ![imageedit_1_4389128286](https://user-images.githubusercontent.com/93416695/190962283-789cbd25-0803-4d8a-a08b-e9d81dd0a4c4.png)
 ![imageedit_1_3665419733](https://user-images.githubusercontent.com/93416695/190962437-42bb5fcc-3a9e-403f-a936-693e6e418958.png)
 
-***interests*** (´ ∀ ` *)
+***interests*** (´ ∀ ` )
 
 
 *killer7/grasshopper manufacture's games in general*
