@@ -62,7 +62,7 @@
 
 *SCP*
 
-*rpg maker horror*
+*rpg maker horror games*
 
 *the sims 2*
 
