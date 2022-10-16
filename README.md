@@ -21,11 +21,11 @@
 
 ![ezgif-1-a1d49935a0](https://user-images.githubusercontent.com/93416695/190961432-05198838-ccc1-4e5f-8732-84671edaf87a.gif)
 
-† - i frequently sleep while playing and have severe social anxiety so I might not respond if you talk to me directly. if it's something important or you just want to chat, i'd prefer you use whispers.
+† - i frequently sleep while playing and have severe social anxiety so i might not respond if you talk to me directly. if it's something important or you just want to chat, i'd prefer you use whispers.
 
 † - my english skills aren't perfect so please don't mind if my typing is a little awkward
 
-† - mostly active around midnight to 5 AM CST. if I'm online during the mornings or afternoon I'm probably asleep
+† - mostly active around midnight to 5 AM CST. if i'm online during the mornings or afternoon i'm probably asleep
 
 † - [kinlist ༼;´༎ຶ ༎ຶ༽](https://liberationmaiden.carrd.co/)
 
@@ -77,7 +77,7 @@
 
 ![latest (2)](https://user-images.githubusercontent.com/93416695/190964031-efb31041-5e00-45f0-b9a6-9e5fd19801f2.png)
 
-***other cool games that I like***
+***other cool games that i like***
 
 *who's lila*
 
