@@ -23,7 +23,7 @@
 
 † - undead nervous wreck (￣ ￣|||)
 
-† - i'm awfully shy, frequently sleep while playing, and have severe social anxiety so I might not respond if you talk to me directly. whispers are prefered but not mandatory!
+† - i frequently sleep while playing and have severe social anxiety so I might not respond if you talk to me directly. if it's something important or you just want to chat, I'd prefer you use whispers.
 
 † - my english skills aren't perfect so please don't mind if my typing is a little awkward
 
