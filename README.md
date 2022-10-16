@@ -79,7 +79,7 @@
 
 ![latest (2)](https://user-images.githubusercontent.com/93416695/190964031-efb31041-5e00-45f0-b9a6-9e5fd19801f2.png)
 
-***other games that I like and are cool, go check them out <3***
+***other cool games that I like <3***
 
 *who's lila*
 
