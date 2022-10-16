@@ -21,7 +21,7 @@
 
 ![ezgif-1-a1d49935a0](https://user-images.githubusercontent.com/93416695/190961432-05198838-ccc1-4e5f-8732-84671edaf87a.gif)
 
-† - i frequently sleep while playing and have severe social anxiety so I might not respond if you talk to me directly. if it's something important or you just want to chat, I'd prefer you use whispers.
+† - i frequently sleep while playing and have severe social anxiety so I might not respond if you talk to me directly. if it's something important or you just want to chat, i'd prefer you use whispers.
 
 † - my english skills aren't perfect so please don't mind if my typing is a little awkward
 
