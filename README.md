@@ -77,18 +77,6 @@
 
 ![latest (2)](https://user-images.githubusercontent.com/93416695/190964031-efb31041-5e00-45f0-b9a6-9e5fd19801f2.png)
 
-***other cool games that i like***
-
-*who's lila*
-
-*townlore*
-
-*bubbaruka*
-
-*mouth sweet*
-
-*irisu syndrome*
-
 ![tumblr_1998c885688f8545044d6f6ef5966617_e948ee9a_500](https://user-images.githubusercontent.com/93416695/190959690-555cf88c-5e2a-42eb-8f94-f2aa31a334ce.gif)
 
 [:)](https://www.youtube.com/watch?v=iHLMnP7bpnk)
