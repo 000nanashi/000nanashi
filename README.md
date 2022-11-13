@@ -48,8 +48,6 @@
 
 *touhou*
 
-*gorillaz*
-
 *world of horror*
 
 *creepypastas*
