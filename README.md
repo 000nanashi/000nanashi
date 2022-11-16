@@ -14,7 +14,7 @@
 
 † - she/her
 
-† - mixed indigenous/cree
+† - first nations/cree
  
  
 
