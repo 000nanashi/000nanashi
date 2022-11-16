@@ -8,11 +8,11 @@
 ![imageedit_1_8911949296](https://user-images.githubusercontent.com/93416695/190963030-41805d36-0984-448a-8a25-6cf9ff3bd6ec.png)
 
 
-† - hikki
+† - tokio/hikki [i don't mind which you use]
 
 † - 18
 
-† - she/her
+† - they/them
 
 † - first nations/cree
  
